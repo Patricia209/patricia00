@@ -1,5 +1,5 @@
 # Olá
 # Meu nome é Patricia Elisabete
 # patriciaelisabete09@gmail.com
-![ https://tenor.com/pt-BR/view/psybirdb1oom-gif-14797655785087855427 ](link)
+![psybirdb1oom](https://github.com/user-attachments/assets/87873abc-b907-4628-92f7-aeb56de54266)
 
